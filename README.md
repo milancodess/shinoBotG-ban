@@ -1,0 +1,1 @@
+# shinoBotG-ban
